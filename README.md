@@ -1,1 +1,0 @@
-# sidikr.github.io
